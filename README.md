@@ -9,10 +9,10 @@ El bogotazo es un hecho que atraviesa la historia de Bogotá y sigue estando pre
 ![Imagenes del Bogotazo](https://github.com/20132155154/HISTORIA/blob/master/imagen%201.jpg)
 Fotografía de la Biblioteca Nacional de Colombia en la cual se pueden observar los restos calcinados del Tranvía del centro de la capital días después del 9 de abril.
 
-![Imagenes del Bogotazo](https://catalogoenlinea.bibliotecanacional.gov.co/client/es_ES/search/asset/95171/0)
+![Imagenes del Bogotazo](https://github.com/20132155154/HISTORIA/blob/master/imagen%202.jpg)
 Fotografía del catálogo de la Biblioteca Nacional de Colombia, allí se pueden ver las ruinas de una edificación del centro de la ciudad tras los acontecimientos del 9 de abril de 1948.
 
-![Imagenes del Bogotazo](https://catalogoenlinea.bibliotecanacional.gov.co/client/es_ES/search/asset/95176/0)
+![Imagenes del Bogotazo](https://github.com/20132155154/HISTORIA/blob/master/imagen%202.jpg)
 Fotografia del catálogo de la Biblioteca Nacional de Colombia, se observan los edificos destruidos  sobre la carrera septima en Bogota.  
 
 ### Archivo videografico
